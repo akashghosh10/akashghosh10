@@ -22,6 +22,8 @@ Here are some ideas to get you started:
 
 - 🤖 AI Enthusiast and developer on Sundays
 
+- 🧑‍🏫 I teach High school Physics, Maths and Computer Science in my free time
+
 <br>
 
 - 📫 Reach me at -
